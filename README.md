@@ -1,2 +1,3 @@
 # hello
 just hello
+Do your own research: You can conduct a quick survey through your professional network to see which sites others use. Personal referrals can help, so try a post on LinkedIn asking your network for recommendations. You could also post on forums just like Quora for recommendations. Finally, you can also research and read reviews on Yelp of existing freelancer websites and agencies. The plus side with this method is that you won’t pay a “finders fee” or retainer, but you’ll be spending a lot of time doing individual research before you even get to the stage of interviewing candidates, conducting background checks, and putting your candidates through test assignments.
